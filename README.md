@@ -1,6 +1,6 @@
 # 守候网络官网地址
 
-最新地址：[xttlove.uk](https://u.xn--hwqp2zit2amna.com/auth/register?code=OObK4DCl)
+最新地址：[xttlove.uk](https://ncdn1.sntp.uk/auth/register?code=OObK4DCl)
 
 ## 守候网络介绍
 
